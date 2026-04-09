@@ -1,5 +1,5 @@
-<p align="center">I am.. not going to spend the time figuring out how to make this as all you really need to see about me is already created and / or linked.
-<p align="center">I want to use this to collect blinkies over time and that is it :3c Have fun looking through or suggesting them
+<p align="center">I'm not going to spend my current time figuring out how to make this since all you really need to see about me is already created and / or linked. hehe
+<p align="center">I only really wanted to use this for the collection of blinkies over time and that's it :3c Have fun looking through or suggesting them.. I think you can link them to me on my atabook or something.
 
 <p align="center"> <a href="https://visitorbadge.io/status?path=IneffableNoesis"><img src="https://api.visitorbadge.io/api/visitors?path=IneffableNoesis&label=Hoes%20mad&labelColor=%23d9e3f0&countColor=%23263759&style=flat" /></a>
 
