@@ -1,5 +1,7 @@
 <p align="center">My sites are usually very elaborate because I would greatly prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you in my Carrd. ;3
 
+<p align="center"> You should also view it on computer. else it gets ominously long
+
 <p align="center">I'm not going to spend my current time figuring out how to make a full github since all you really need to see about me is already created and / or linked. hehe
 <p align="center">I only really wanted to use this for the collection of blinkies over time and that's it :3c Have fun looking through or suggesting them.. I think you can link them to me on my atabook or something.
 
