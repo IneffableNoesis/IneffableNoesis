@@ -1,4 +1,4 @@
-My sites are usually very elaborate because I would greatly prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you in my Carrd. ;3
+<p align="center"> My sites are usually very elaborate because I would greatly prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you in my Carrd. ;3
 
 <p align="center"> You should also view it on computer. else it gets ominously long
 
