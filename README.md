@@ -13,7 +13,7 @@
 <p align="center">_
 
 <div align="center">
-<h4>My sites are very elaborate because I prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you here. It's either that or come right up to me ;3</h4>
+<h3>My sites are very elaborate because I prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you here. It's either that or come right up to me ;3</h3>
 </div>
 
 <p align="center">_
