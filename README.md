@@ -1,4 +1,4 @@
-<p align="center"> Hello there. My name is IneffableNoesis. Peep my epic:
+<p align="center"> Hello there. My name is IneffableNoesis. Please view my pages on PC if possible. 
 
 <p align="center">
   <img src=https://i.imgur.com/QKSKB8d.png style="width:60%; height:auto;">
