@@ -1,12 +1,20 @@
 <p align="center">_
-<p align="center"> Hello there. My name is IneffableNoesis. Best viewed on PC
+
+<div align="center">
+<h3>Hello there. My name is IneffableNoesis. Best viewed on PC</h3>
+</div>
+
+
 
 <p align="center">
   <img src=https://i.imgur.com/QKSKB8d.png style="width:80%; height:auto;">
 </p>
 
+<p align="center">_
 
-<p align="center"> My sites are very elaborate because I prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you here. That or come right up to me ;3
+<div align="center">
+<h4>My sites are very elaborate because I prefer to surround myself with people who truly care to learn about and understand others. I'm looking to have new social experiences and potentially make new friends, so if you're up for it, there's plenty of info for you here. It's either that or come right up to me ;3</h4>
+</div>
 
 <p align="center">_
 <p align="center"> <a href="https://visitorbadge.io/status?path=IneffableNoesis"><img src="https://api.visitorbadge.io/api/visitors?path=IneffableNoesis&label=Hoes%20mad&labelColor=%23d9e3f0&countColor=%23263759&style=flat" /></a>
