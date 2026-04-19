@@ -2,7 +2,7 @@
 <p align="center"> Hello there. My name is IneffableNoesis. Best viewed on PC
 
 <p align="center">
-  <img src=https://i.imgur.com/QKSKB8d.png style="width:70%; height:auto;">
+  <img src=https://i.imgur.com/QKSKB8d.png style="width:80%; height:auto;">
 </p>
 
 
