@@ -1,14 +1,14 @@
 <p align="center">☘︎
 
 <div align="center">
-<h4>Hello there. My name is IneffableNoesis. All pages best viewed on PC</h4>
+<h3>Hello there. My name is IneffableNoesis. All pages best viewed on PC</h3>
 </div>
 <div align="center">
-<h4>My sites are elaborate because I prefer surrounding myself with those who truly value learning about and understanding others. I'm looking to have new social experiences and make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h4>
+<h3>My sites are elaborate because I prefer surrounding myself with those who truly value learning about and understanding others. I'm looking to have new social experiences and make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 
 
 <div align="center">
-<h4>Please note that I do not partake in "fandoms" or join fan dominated spaces. Cosplays are just for looks while sitting in fandom areas is for sight-seeing. Leaving this here for those who won't read my Carrd. Do not be silly go read it it's important.</h4>
+<h3>Please note that I do not partake in "fandoms" or join fan dominated spaces. Cosplays are just for looks while sitting in fandom areas is for sight-seeing. Leaving this here for those who won't read my Carrd. Do not be silly go read it it's important.</h3>
 </div>
 
 <p align="center">☘︎
