@@ -6,6 +6,7 @@
 <div align="center">
 <h3>My sites are elaborate because I prefer surrounding myself with those who truly value learning about and understanding others. I'm looking to have new social experiences and make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 
+꩜
 
 <div align="center">
 <h4> > "Cuddle freely" includes when I'm with friends :3 I know it may feel odd but I don't believe they'd think that. Don't assume *they* will always interact even if I will - my statuses do not reflect their own. If they *do* interact, I assure you they aren't scary - I do not take nicely to those who are mean or passive to strangers, especially if you're respectful and kind first.</h4>
