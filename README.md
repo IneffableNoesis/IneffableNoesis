@@ -11,6 +11,11 @@
 <div align="center">
 <h4> > "Cuddle freely" includes when I'm with friends :3 I know it may feel odd but I don't believe they'd think that. Don't assume *they* will always interact even if I will - my statuses do not reflect their own. If they *do* interact, I assure you they aren't scary - I do not take nicely to those who are mean or passive to strangers, especially if you're respectful and kind first.</h4>
 </div>
+
+<div align="center">
+<h4> > If you didn't see it to the left, please know i am EIGHTEEN (18). There was confusion regarding my age due to an Entry in my Carrd, but that's just me talking about not wanting to fully befriend anyone 15 y.o or younger. :3 More info is listed in the Carrd itself.</h4>
+</div>
+
 <div align="center">
 <h4> > I do not directly partake in "fandoms" or fan dominated spaces. Cosplays are for looks, sitting in fandom areas is for sight-seeing. It's mentioned on my Carrd, but is here in case it's not viewed. There's more important stuff about it in there go look</h4>
 </div>
