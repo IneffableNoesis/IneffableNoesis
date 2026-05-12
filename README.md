@@ -27,7 +27,7 @@
 
 <p align="center">꩜
 <p align="center">
-  <img src=https://i.imgur.com/JGkYBGH.png style="width:80%; height:auto;">
+  <img src=https://i.imgur.com/JGkYBGH.png style="width:75%; height:auto;">
 </p>
 
 <p align="center">☘︎
