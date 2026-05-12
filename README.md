@@ -13,7 +13,7 @@
 </div>
 
 <div align="center">
-<h4> > To the left, you'll see I'm EIGHTEEN (18). There was confusion regarding my age due to something in my Carrd, but that's just me talking about not wanting to fully befriend anyone 15 y.o or younger. :3 </h4>
+<h4> > To the left, you'll see I'm EIGHTEEN (18). There was confusion regarding my age due to something in my Carrd, but that's just me talking about not wanting to fully befriend anyone 15 y.o or younger. </h4>
 </div>
 
 <div align="center">
