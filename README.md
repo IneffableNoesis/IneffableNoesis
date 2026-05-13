@@ -17,7 +17,7 @@
 </div>
 
 <div align="center">
-<h4> > I do not directly partake in "fandoms" or fan dominated spaces. Cosplays are for looks, sitting in fandom areas is for sight-seeing. It's mentioned on my Carrd, but is here in case it's not viewed - go take a look. </h4>
+<h4> > I do not directly partake in "fandoms", and sitting near their spots is for sight-seeing. SOME cosplays may just be for looks, but there's plenty of info on my Carrd regarding my actual interests, so if you're curious, go take a peek. </h4>
 </div>
 
 <p align="center">☘︎
