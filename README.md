@@ -17,7 +17,7 @@
 </div>
 
 <div align="center">
-<h4> > I do not directly partake in "fandoms", and sitting near their spots is for sight-seeing. SOME cosplays may just be for looks, but there's plenty of info on my Carrd regarding my actual interests, so if you're curious, go take a peek. </h4>
+<h4> > I do not directly partake in fandoms and sitting in their "areas" is either sight-seeing or me just enjoying the map. SOME cosplays may be exclusively for looks, but there's plenty of info on my Carrd regarding my actual interests, so go take a peek :3</h4>
 </div>
 
 <p align="center">☘︎
