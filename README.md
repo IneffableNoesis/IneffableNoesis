@@ -44,7 +44,8 @@
 <br />
 <p align="center">☘︎
 <br />
-  ![thisisablinkie](https://blinkie.world/blinkies/gray%20blinkies/this%20is%20a%20blinkie.gif) ![yesicopiedititsmine](https://i.imgur.com/mITuGRv.gif) ![justsayhitome](https://adriansblinkiecollection.neocities.org/b20.gif)
+  
+![thisisablinkie](https://blinkie.world/blinkies/gray%20blinkies/this%20is%20a%20blinkie.gif) ![yesicopiedititsmine](https://i.imgur.com/mITuGRv.gif) ![justsayhitome](https://adriansblinkiecollection.neocities.org/b20.gif)
 <br />
 <p align="center">꩜
 <br />
