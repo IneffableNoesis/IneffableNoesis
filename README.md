@@ -1,3 +1,5 @@
+<p align="center">
+  <img src=https://i.imgur.com/OROhRgp.jpeg style="width:80%; height:auto;">
 <p align="center">☘︎
 
 <div align="center">
