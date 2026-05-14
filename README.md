@@ -34,16 +34,15 @@
 
 <br />
 
-<p align="center"> <a href="https://visitorbadge.io/status?path=IneffableNoesis"><img src="https://api.visitorbadge.io/api/visitors?path=IneffableNoesis&label=Hoes%20mad&labelColor=%23d9e3f0&countColor=%23263759&style=flat" /></a>
-<br />
-  
 <p align="center">꩜
 <br />
 <p align="center">
   <img src=https://i.imgur.com/5u3Aku1.png style="width:70%; height:auto;">
 </p>
-<br />
 <p align="center">☘︎
+<br />
+
+<p align="center"> <a href="https://visitorbadge.io/status?path=IneffableNoesis"><img src="https://api.visitorbadge.io/api/visitors?path=IneffableNoesis&label=Hoes%20mad&labelColor=%23d9e3f0&countColor=%23263759&style=flat" /></a>
 <br />
   
 ![thisisablinkie](https://blinkie.world/blinkies/gray%20blinkies/this%20is%20a%20blinkie.gif) ![yesicopiedititsmine](https://i.imgur.com/mITuGRv.gif) ![justsayhitome](https://adriansblinkiecollection.neocities.org/b20.gif)
