@@ -12,13 +12,6 @@
 
 <div align="center">
 <h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page, I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
-</div>
-
-<div align="center">
-- As is stated to the left, I'm EIGHTEEN (18).
-</div>
-<br />
-꩜
 
 <div align="center">
 <h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, but it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised or offended if I kindly request otherwise or eventually walk away.</h4>
