@@ -6,7 +6,7 @@
 <h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
 </div>
 <div align="center">
-<h3>My sites are elaborate because I prefer surrounding myself with those who value learning about and understanding others. I'm looking forward to new experiences and making some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
+<h3>I prefer surrounding myself with those who value learning about and understanding others. I'm looking forward to new experiences and making some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 
 ꩜
 
