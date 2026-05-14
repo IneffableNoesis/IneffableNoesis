@@ -15,7 +15,7 @@
 </div>
 
 <div align="center">
-> I'm EIGHTEEN (18) which can be seen to the left. This is here because there was confusion regarding my age due to an entry in my Carrd stating I do not wish to fully befriend people 15 and younger.
+> I'm EIGHTEEN (18) which can be seen to the left. This is here because there was confusion regarding my age due to an entry in my Carrd stating I do not wish to fully befriend people 15 and under.
 </div>
 <br />
 ꩜
