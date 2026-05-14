@@ -1,5 +1,5 @@
 <p align="center">
-  <img src=https://i.imgur.com/OROhRgp.jpeg style="width:70%; height:auto;">
+  <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;">
 <p align="center">☘︎
 
 <div align="center">
