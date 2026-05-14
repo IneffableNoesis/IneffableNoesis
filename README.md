@@ -1,15 +1,23 @@
 <p align="center">☘︎
 
 <div align="center">
-<h3>Hello there. My name is IneffableNoesis. All pages best viewed on PC</h3>
+<h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
 </div>
 <div align="center">
-<h3>My sites are elaborate because I prefer surrounding myself with those who truly value learning about and understanding others. I'm looking to have new social experiences and make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
+<h3>My sites are elaborate because I prefer surrounding myself with those who value learning about and understanding others. I'm looking to have new experiences and make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 
 ꩜
 
 <div align="center">
-<h4> > "Cuddle freely" includes when I'm with friends :3 It may feel odd but they wouldn't think that. *They* may not always interact even if I will, my statuses do not reflect their own. If they *do*, I assure you they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first.</h4>
+<h4> > There's immediate quick-view info here, but the truly important things are in my CARRD. If *you're* without at least a simple page, I'm less likely to engage past greets and light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
+</div>
+
+<div align="center">
+<h4> > I do not appreciate humor that involves "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, but it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised / offended if I kindly request otherwise or walk away upon various offenses.</h4>
+</div>
+
+<div align="center">
+<h4> > "Cuddle freely" includes when I'm with friends!! It may feel odd, but they wouldn't think that. While I will usually always interact, *they* may not since my statuses do not reflect their own. If they *do*, I assure you they aren't scary - I don't take nicely to those who are mean, disrespectful, or passive to strangers, especially if you're respectful first.</h4>
 </div>
 
 <div align="center">
@@ -17,7 +25,7 @@
 </div>
 
 <div align="center">
-<h4> > I do not directly partake in fandoms and sitting in their "areas" is either sight-seeing or me just enjoying the map. SOME cosplays may be exclusively for looks, but there's plenty of info on my Carrd regarding my actual interests, so go take a peek :3</h4>
+<h4> > I do not directly partake in fandoms and sitting in their "areas" is either sight-seeing or me just enjoying the map. SOME cosplays may be exclusively for looks, but again, there's plenty of info on my Carrd regarding my actual interests, so go take a peek :3</h4>
 </div>
 
 <p align="center">☘︎
