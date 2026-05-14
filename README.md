@@ -6,7 +6,7 @@
 <h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
 </div>
 <div align="center">
-<h3>My sites are elaborate because I prefer surrounding myself with those who value learning about and understanding others. I'm looking to have new experiences and make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
+<h3>My sites are elaborate because I prefer surrounding myself with those who value learning about and understanding others. I'm looking forward to new experiences and making some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 
 ꩜
 
@@ -15,7 +15,7 @@
 </div>
 
 <div align="center">
-- I'm EIGHTEEN (18) which can be seen to the left. This is here because there was confusion regarding my age due to an entry in my Carrd stating I do not wish to fully befriend people 15 and under.
+- I'm EIGHTEEN (18) as is stated to the left. This is here because there was confusion regarding my age due to an entry in my Carrd stating I do not wish to fully befriend people 15 and under.
 </div>
 <br />
 ꩜
@@ -25,7 +25,7 @@
 </div>
 
 <div align="center">
-- "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. While I will usually always interact, *they* may not since my statuses do not reflect their own. If they *do*, I assure you they aren't scary - I don't take nicely to those who are mean, disrespectful, or passive to strangers, especially if you're respectful first. 
+- "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. While I will usually always interact, *they* may not since my statuses do not reflect their own. If they do, I assure you they aren't scary - I don't take nicely to those who are mean, disrespectful, or passive to strangers, especially if you're respectful first. 
 </div>
 <br />
 <div align="center">
