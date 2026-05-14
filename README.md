@@ -20,10 +20,6 @@
 <div align="center">
 - "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. I will usually always interact, but *they* may not since my statuses do not reflect their own. Either way, I assure you they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first. 
 </div>
-<br />
-<div align="center">
-- I do not directly partake in fandoms and sitting in their "areas" is just me enjoying the map. SOME cosplays may be exclusively for looks, but my actual interests are listed in my Carrd, go take a peek :3
-</div>
 
 <br />
 
