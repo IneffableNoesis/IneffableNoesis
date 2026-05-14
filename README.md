@@ -13,21 +13,21 @@
 </div>
 
 <div align="center">
-<h4> > To the left, you'll see I'm EIGHTEEN (18). There was confusion regarding my age due to something in my Carrd, but that's just me talking about not wanting to fully befriend anyone 15 y.o or younger. </h4>
+> I'm EIGHTEEN (18) which can be seen to the left. This is here because there was confusion regarding my age due to an entry in my Carrd stating I do not wish to fully befriend people 15 and younger.
 </div>
-
+<br />
 ꩜
 
 <div align="center">
-<h4> > I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, but it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised / offended if I kindly request otherwise or eventually walk away.</h4>
+<h4> > I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, but it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised or offended if I kindly request otherwise or eventually walk away.</h4>
 </div>
 
 <div align="center">
-<h4> > "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. While I will usually always interact, *they* may not since my statuses do not reflect their own. If they *do*, I assure you they aren't scary - I don't take nicely to those who are mean, disrespectful, or passive to strangers, especially if you're respectful first.</h4>
+> "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. While I will usually always interact, *they* may not since my statuses do not reflect their own. If they *do*, I assure you they aren't scary - I don't take nicely to those who are mean, disrespectful, or passive to strangers, especially if you're respectful first. 
 </div>
-
+<br />
 <div align="center">
-<h4> > I do not directly partake in fandoms and sitting in their "areas" is either sight-seeing or me just enjoying the map. SOME cosplays may be exclusively for looks, but again, my actual interests are listed in my Carrd, so go take a peek :3</h4>
+> I do not directly partake in fandoms and sitting in their "areas" is just me enjoying the map. SOME cosplays may be exclusively for looks, but again, my actual interests are listed in my Carrd, so go take a peek :3
 </div>
 
 <p align="center">☘︎
