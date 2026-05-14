@@ -15,7 +15,7 @@
 </div>
 
 <div align="center">
-- I'm EIGHTEEN (18) as is stated to the left. This is here because there was confusion regarding my age due to an entry in my Carrd stating I do not wish to fully befriend people 15 and under.
+- As is stated to the left, I'm EIGHTEEN (18).
 </div>
 <br />
 ꩜
@@ -25,19 +25,20 @@
 </div>
 
 <div align="center">
-- "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. While I will usually always interact, *they* may not since my statuses do not reflect their own. If they do, I assure you they aren't scary - I don't take nicely to those who are mean, disrespectful, or passive to strangers, especially if you're respectful first. 
+- "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. I will usually always interact, but *they* may not since my statuses do not reflect their own. Either way, I assure you they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first. 
 </div>
 <br />
 <div align="center">
-- I do not directly partake in fandoms and sitting in their "areas" is just me enjoying the map. SOME cosplays may be exclusively for looks, but again, my actual interests are listed in my Carrd, so go take a peek :3
+- I do not directly partake in fandoms and sitting in their "areas" is just me enjoying the map. SOME cosplays may be exclusively for looks, but my actual interests are listed in my Carrd, go take a peek :3
 </div>
-<br />
-<p align="center">☘︎
+
 <br />
 
 <p align="center"> <a href="https://visitorbadge.io/status?path=IneffableNoesis"><img src="https://api.visitorbadge.io/api/visitors?path=IneffableNoesis&label=Hoes%20mad&labelColor=%23d9e3f0&countColor=%23263759&style=flat" /></a>
 <br />
+  
 <p align="center">꩜
+<br />
 <p align="center">
   <img src=https://i.imgur.com/5u3Aku1.png style="width:70%; height:auto;">
 </p>
