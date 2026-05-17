@@ -1,5 +1,6 @@
 <p align="center">
-  <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;">
+  <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;"> <br />
+<sub>Last Updated 05/17</sub>
 <p align="center">☘︎
 
 <div align="center">
@@ -11,7 +12,7 @@
 ꩜
 
 <div align="center">
-<h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page, I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
+<h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
 
 <div align="center">
 <h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, but it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised or offended if I kindly request otherwise or eventually walk away.</h4>
