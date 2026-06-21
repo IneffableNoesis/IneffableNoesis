@@ -3,7 +3,10 @@
 <sub>Last Updated 05/17</sub>
 <br />
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
+<br />
+Pay or not, please share
 <p align="center">☘︎
+
 
 <div align="center">
 <h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
