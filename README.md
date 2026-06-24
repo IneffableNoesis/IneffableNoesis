@@ -4,7 +4,7 @@
 <br />
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
 <br />
-Pay or not, please share
+Pay or not, please share, send it anywhere
 <p align="center">☘︎
 
 
