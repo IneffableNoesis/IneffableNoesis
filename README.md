@@ -1,11 +1,11 @@
 <p align="center">
   <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;"> <br />
-<sub>Last Updated 05/17</sub>
+<sub>Last Updated 06/25</sub>
 <br />
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
 <br />
 Pay or not, please share, send it anywhere
-<p align="center">Verbal support helps. Let me and the other supporters know if you shared it! 
+<p align="center">Verbal support helps. Let me and the other supporters know you shared it! 
 <p align="center">☘︎
 
 <div align="center">
