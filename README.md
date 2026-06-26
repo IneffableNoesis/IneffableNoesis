@@ -5,7 +5,7 @@
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
 <br />
 Pay or not, please share, send it anywhere
-<p align="center">Verbal support helps. Let us know if you shared it! 
+<p align="center">Verbal support helps. Let me and the other supporters know if you shared it! 
 <p align="center">☘︎
 
 <div align="center">
