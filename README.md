@@ -5,8 +5,8 @@
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
 <br />
 Pay or not, please share, send it anywhere
+<p align="center">Verbal support helps. Let us know if you shared it! 
 <p align="center">☘︎
-
 
 <div align="center">
 <h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
