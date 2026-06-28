@@ -12,19 +12,23 @@ Pay or not, please share, send it anywhere
 <h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
 </div>
 <div align="center">
-<h3>I prefer surrounding myself with those who value learning about and understanding others. I'm looking forward to new experiences and making some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
+<h3>I prefer surrounding myself with those who value learning about and understanding others. I'm seeking new experiences and wish to make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 
 ꩜
 
 <div align="center">
-<h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
+<h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm _less likely_ to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
 
 <div align="center">
-<h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, but it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised or offended if I kindly request otherwise or eventually walk away.</h4>
+<h4> - I'm looking for long-term meaningful friendships. Despite my daily interactions, I don't quite have anyone strikingly close to me. If you're interested, I assure you I'm a very good friend and want it too. Just let me know. You can even ask what I seek :3 </h4>
 </div>
 
 <div align="center">
-- "Cuddle freely" includes when I'm with friends!! You may think it's odd, but they wouldn't. I will usually always interact, but *they* may not since my statuses do not reflect their own. Either way, I assure you they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first. 
+<h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, and it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised or offended if I kindly request otherwise or eventually walk away.</h4>
+</div>
+
+<div align="center">
+- "Cuddle freely" includes when I'm with friends!! They wouldn't eveerr mind. I typically always interact, but *they* may not since my statuses do not reflect their own. Either way, they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first. 
 </div>
 
 <br />
