@@ -1,6 +1,6 @@
 <p align="center">
   <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;"> <br />
-<sub>Last Updated 06/28</sub>
+<sub>Directory Last Updated 06/28</sub>
 <br />
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
 <br />
