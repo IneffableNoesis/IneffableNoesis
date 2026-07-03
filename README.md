@@ -20,15 +20,15 @@ Pay or not, please share, send it anywhere
 <h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
 
 <div align="center">
-<h4> - I'm looking for long-term meaningful friendships. Despite my daily interactions, I don't quite have anyone strikingly close to me. If you're interested, I assure you I'm a very good friend and want it too. Just let me know. You can even ask what I'm looking for if you feel you need to :3 </h4>
+<h4> - I'm looking for meaningful friendships. Despite my daily interactions, I don't quite have anyone strikingly close to me. If you're interested, I assure you I'm a very good friend and want it too. Just let me know. :3 </h4>
 </div>
 
 <div align="center">
-<h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. I will not stick around negativity, and it's not an attempt to critisize - my Carrd states my reasonings, so please don't choose to trek up and feel surprised or offended if I kindly request otherwise or eventually walk away.</h4>
+<h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. No matter what kind I prefer not to stick around blatant negativity, but it's not an attempt to critisize - My Carrd further explains how I feel about it and why </h4>
 </div>
 
 <div align="center">
-- "Cuddle freely" includes when I'm with friends!! They wouldn't eveerr mind. I typically always interact, but *they* may not since my statuses do not reflect their own. Either way, they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first. 
+- "Cuddle freely" includes when I'm with friends!! They wouldn't ever mind. I typically always interact, but *they* may not since my statuses do not reflect their own. Either way, they aren't scary - I don't take nicely to those who are mean to strangers, especially if you're respectful first. 
 </div>
 
 <br />
