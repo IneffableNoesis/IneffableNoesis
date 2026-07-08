@@ -13,11 +13,10 @@ Pay or not, please share, send it anywhere
 </div>
 <div align="center">
 <h3>I prefer surrounding myself with those who value learning about and understanding others. I'm seeking new experiences and wish to make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
+<div align="center">
+<h3> Also, my skin got stolen. If my Git is absent, it's not me.</h3>
 
 ꩜
-
-<div align="center">
-<h4> - My skin got stolen. If my Git isn't attached, it's not me.</h4>
 
 <div align="center">
 <h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
