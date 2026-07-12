@@ -14,7 +14,7 @@ Pay or not, please share, send it anywhere
 <div align="center">
 <h3>I prefer surrounding myself with those who value learning about and understanding others. I'm seeking new experiences and wish to make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
 <div align="center">
-<h3> Also, my skin got stolen. If my Git is absent, it's not me.</h3>
+<h3> Also my skin got stolen, so if my Git is absent, it's not me.</h3>
 
 ꩜
 
