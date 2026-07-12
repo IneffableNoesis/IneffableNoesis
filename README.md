@@ -22,7 +22,7 @@ Pay or not, please share, send it anywhere
 <h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
 
 <div align="center">
-<h4> - I'm looking for meaningful friendships. Despite my daily interactions, I don't quite have anyone strikingly close to me. If you're interested, I assure you I'm a very good friend and want it too. Just let me know. :3 </h4>
+<h4> - I'm looking for meaningful friendships. Despite my daily interactions, I don't quite have anyone strikingly close to me. If you're interested, I assure you I'm a very good friend and want it too. Just let me know 👌 </h4>
 </div>
 
 <div align="center">
