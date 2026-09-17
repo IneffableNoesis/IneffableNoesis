@@ -1,8 +1,8 @@
 <p align="center">
   <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;"> <br />
-<sub>Directory Last Updated 06/28 - Carrd Updated 07/04</sub>
+<sub>Directory Last Updated 09/17 - Carrd Updated 07/04</sub>
 <br />
- <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME ꩜
+ <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME - 97% THROUGH ꩜
 <br />
 
 <p align="center">☘︎
@@ -11,21 +11,19 @@
 <h3>Hello there, My name is IneffableNoesis. All pages best viewed on PC</h3>
 </div>
 <div align="center">
-<h3>I prefer surrounding myself with those who value learning about and understanding others. I'm seeking new experiences and wish to make some friends, so if you're up for it, there's plenty for you here. It's either that or come right up to me ;3</h3>
-<div align="center">
-<h3> My skin got stolen. so if my Git is absent, it's not me 🤔</h3>
+<h4> My skin got stolen. If my Git is absent it's not me 🤔</h4>
 
 ꩜
 
 <div align="center">
-<h4> - There's quick-view info here, but the important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
+<h4> - The important things are in my CARRD. If *you're* without at least a simple page (and v<ins>isible ag</ins>e), I'm less likely to engage past light conversation. Bios prepare me and help me ensure we have similar motives.</h4>
 
 <div align="center">
-<h4> - I'm looking for meaningful friendships. Despite my daily interactions, I don't quite have anyone strikingly close to me. If you're interested, I assure you I'm a very good friend and want it too. Just let me know 👌 </h4>
+<h4> - I prefer surrounding myself with those who value understanding others and am looking for meaningful friendships. Despite my daily interactions, I don't have anyone strikingly close to me. Don't be afraid to come up to me, I assure you I'm a very good friend and want it too. Just let me know 👌 </h4>
 </div>
 
 <div align="center">
-<h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. No matter what kind I prefer not to stick around blatant negativity, but it's not an attempt to critisize - My Carrd further explains how I feel about it and why </h4>
+<h4> - I do not appreciate "playful teasing / bullying" even if you're speaking to someone else while interacting with me. No matter what kind I prefer not to stick around blatant negativity, but it's not an attempt to criticize - My Carrd further explains how I feel about it and why </h4>
 </div>
 
 <div align="center">
