@@ -1,6 +1,6 @@
 <p align="center">
   <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;"> <br />
-<sub>Directory Last Updated 09/17 - Carrd Updated 07/04</sub>
+<sub>Directory Last Updated 09/17 - Carrd Updated 09/17</sub>
 <br />
  <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME - 97% THROUGH ꩜
 <br />
