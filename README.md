@@ -1,8 +1,9 @@
 <p align="center">
   <img src=https://i.imgur.com/OROhRgp.jpeg style="width:50%; height:auto;"> <br />
 <sub>Directory Last Updated 09/17 - Carrd Updated 09/17</sub>
+  <br />
 <br />
- <a href=https://gofund.me/deae10dab> ꩜ GO FUND ME - 97% THROUGH ꩜
+꩜ The GoFundMe has concluded :3 thank you guys for your help ꩜
 <br />
 
 <p align="center">☘︎
